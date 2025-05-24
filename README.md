@@ -3,7 +3,6 @@
 - 🌱 I’m currently learning coding.
 - 💞️ I’m looking to collaborate on fun projects
 - 📫 How to reach me -sanjeebani2018@gmail.com
-- 😄 Pronouns: anything
 - ⚡ Fun fact: I love cats but scared of them physically.
 
 <!---
